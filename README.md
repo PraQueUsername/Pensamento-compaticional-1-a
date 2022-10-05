@@ -1,0 +1,1 @@
+# Pensamento-compaticional-1-a
